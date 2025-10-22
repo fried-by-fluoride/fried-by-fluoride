@@ -1,3 +1,3 @@
-## doctor said nothing can take away my swag
+## если хотите закентиться то напишите в лс или подсядьте <3
 
-<img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ2d4cjdwbmI2czNqbTZpNWNlODRwaTExcW84aDI2cDJhZDgzcGR2byZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Gc5XIT7RfWj2Q12pMM/giphy.gif" alt="Alt Text" width="400" height="2500">
+<img src="https://i.postimg.cc/V6D2cgHt/photo-2025-10-22-16-43-01.jpg" alt="Alt Text" width="400" height="2500">
